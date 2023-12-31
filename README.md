@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cdsutton23
+- 👋 Hi, I’m C!
 - 👀 I’m interested in building in businesses.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate with likeminded professionals and continue my journey.
